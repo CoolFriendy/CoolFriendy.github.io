@@ -1,0 +1,1 @@
+# CoolFriendy.github.io
